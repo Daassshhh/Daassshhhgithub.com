@@ -1,8 +1,9 @@
 ## THE PAST AND FUTURE OF HABITABLE PLANETS AND MOONS
 
 Starting of Planet VENUS
-4.6 billion years ago, Tiny planetesimals/rocks combined to from Venus.       4 billion years ago, A giant object hit VENUS forming a moon (similar to how our moon formed)
-![x](https://user-images.githubusercontent.com/99862478/157416097-c99a4724-6fce-40df-84e6-5ec6e53c338c.PNG)       ![c](https://user-images.githubusercontent.com/99862478/157416746-a940d8ce-f67e-47cb-b3fc-fd9b6dfaf5dd.PNG)
+4.6 billion years ago, Tiny planetesimals/rocks combined to from Venus.   4 billion years ago, A giant object hit VENUS forming a moon (similar to how our moon formed)
+
+![x](https://user-images.githubusercontent.com/99862478/157416097-c99a4724-6fce-40df-84e6-5ec6e53c338c.PNG)                                                                       ![c](https://user-images.githubusercontent.com/99862478/157416746-a940d8ce-f67e-47cb-b3fc-fd9b6dfaf5dd.PNG)
 
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
