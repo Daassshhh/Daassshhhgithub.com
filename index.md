@@ -38,10 +38,16 @@ VENUS is the hottest planet in the solar system, Even lead can melt on its surfa
 
 ![5](https://user-images.githubusercontent.com/99862478/157640614-5a513bf0-7d4e-48da-a2ed-7d7f085de3ae.PNG)
 
+_________________________________________________________________________________________________________________________________________________________________________________
+
+Next up planet EARTH, 4.55 billion years ago, Small objects in the solar system clumped together to from EARTH. 4.52 billion years ago, A MARS sized object collided with EARTH to form MOON. A day on EARTH was just few hours long.
+
+![o](https://user-images.githubusercontent.com/99862478/157642477-282a8203-f8b9-4951-b89a-90f210ff31e9.PNG)
+![l](https://user-images.githubusercontent.com/99862478/157642503-79a1ef49-a73c-4abe-b140-1b7b2922e208.PNG)
+![q](https://user-images.githubusercontent.com/99862478/157642520-74b634a9-ebb9-4a08-86cc-1b87cc2085f0.PNG)
 
 
 
 
 
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
