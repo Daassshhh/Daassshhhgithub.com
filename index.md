@@ -34,7 +34,9 @@ VENUS is the hottest planet in the solar system, Even lead can melt on its surfa
 ![1](https://user-images.githubusercontent.com/99862478/157639789-bd454bc2-b3df-48c5-818b-d440a12448da.PNG)
 
 
+5 billion years from now, The Red Giant Sun will swallow VENUS.
 
+![5](https://user-images.githubusercontent.com/99862478/157640614-5a513bf0-7d4e-48da-a2ed-7d7f085de3ae.PNG)
 
 
 
