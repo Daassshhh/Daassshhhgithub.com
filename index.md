@@ -48,6 +48,6 @@ Next up planet EARTH, 4.55 billion years ago, Small objects in the solar system 
 
 
 
-
+4 billion years ago, EARTH suffered heavy bombardment of asteroids.
 
 
