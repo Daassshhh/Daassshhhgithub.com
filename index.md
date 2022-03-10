@@ -23,35 +23,23 @@ Starting of Planet VENUS
 ![2](https://user-images.githubusercontent.com/99862478/157422715-9447529e-8ab8-4681-ba59-a67d69ea7703.PNG)
 
 
+VENUS is the hottest planet in the solar system, Even lead can melt on its surface
+
+![t](https://user-images.githubusercontent.com/99862478/157638869-d309348d-7eae-4cc5-aafd-64448f2258ba.PNG)
+![la](https://user-images.githubusercontent.com/99862478/157638891-51575bc2-12c0-418e-8afb-6b26e151484c.PNG)
+
+
+100,000 years from now, Cloud cities will float on VENUS' clouds, where conditions (temperature & pressure) are similar to EARTH.
+
+![1](https://user-images.githubusercontent.com/99862478/157639789-bd454bc2-b3df-48c5-818b-d440a12448da.PNG)
 
 
 
 
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Daassshhh/Daassshhhgithub.com/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
 
 Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
