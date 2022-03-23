@@ -48,6 +48,38 @@ Next up planet EARTH, 4.55 billion years ago, Small objects in the solar system 
 
 
 
-4 billion years ago, EARTH suffered heavy bombardment of asteroids.
+4 billion years ago, EARTH suffered heavy bombardment of asteroids. These asteriods brought water and organics to our planets-ingredients for life. 3.5 billion years ago, the first life form on Earth emerged (possibly near hydrothermal vents.
+
+![dfgh](https://user-images.githubusercontent.com/99862478/159641651-93f51b07-ab69-44fb-8608-29ba842bc603.PNG)
+![met](https://user-images.githubusercontent.com/99862478/159641746-dbc3891c-29b0-4fc7-85c7-63769a84d8f8.PNG)
+![hsghgsf](https://user-images.githubusercontent.com/99862478/159641802-76cecffa-2019-4520-bdb7-858f8d459f79.PNG)
+
+
+
+2.8 to 3.6 billion years ago, The first known supercontinent (Vaalbara) formed. 3.2 billion years ago, Firts oxygen-producing organisms formed. 2.3 Billion years ago, Earth atmosphere became oxygen-rich, This triggered the snowball Earth period where the temperatures dropped severely low.
+
+![hsghgsf](https://user-images.githubusercontent.com/99862478/159643696-d3a958ef-6a34-4512-bc77-613acd1d3951.PNG)
+![bnnm](https://user-images.githubusercontent.com/99862478/159643380-60fc21fb-7b94-478c-9af9-2971b6d92b30.PNG)
+![3 2](https://user-images.githubusercontent.com/99862478/159643749-f04e7ce3-aa4d-40de-be3a-b3424914a415.PNG)
+![hfsdh](https://user-images.githubusercontent.com/99862478/159643828-5a5aada7-f4c6-476c-8e2b-645732ef4fe0.PNG)
+![weqfasdg](https://user-images.githubusercontent.com/99862478/159643941-5f251a2a-f3d1-4b25-a5c3-b4ebdc5123ea.PNG)
+
+
+
+2.1 Billion to 225 million years ago, different supercontinents kept on forming. 65 Million years ago, A 10 km sized asteroids collided with Earth, wiping out 75% of the species (including dinosaurs). 2 Million years ago, The first humans (primitive) appeared on Earth.
+
+
+
+![bdgfhdfgjn](https://user-images.githubusercontent.com/99862478/159645911-cd687bc6-6ed1-4e05-b660-5029abb339d6.PNG)
+![hgfvydth](https://user-images.githubusercontent.com/99862478/159645922-201c7b46-3e6a-44c2-a224-7fff82cfa41e.PNG)
+![jhgbfjy](https://user-images.githubusercontent.com/99862478/159645936-3de62406-0363-40b3-840f-362a1fa36b20.PNG)
+![dfgnhdghbdfg](https://user-images.githubusercontent.com/99862478/159645961-922d84ae-4e6f-4f09-8579-97fe4a9559dc.PNG)
+![sf gvdvssdgv](https://user-images.githubusercontent.com/99862478/159645973-24a735fb-eea0-4f37-bef7-ab1ae6a01d55.PNG)
+![gdnjgnhfg](https://user-images.githubusercontent.com/99862478/159645991-e3a700fb-f336-46ad-bd57-74a42514c79b.PNG)
+
+
+
+
+
 
 
