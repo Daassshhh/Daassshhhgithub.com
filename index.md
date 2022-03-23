@@ -68,8 +68,6 @@ Next up planet EARTH, 4.55 billion years ago, Small objects in the solar system 
 
 2.1 Billion to 225 million years ago, different supercontinents kept on forming. 65 Million years ago, A 10 km sized asteroids collided with Earth, wiping out 75% of the species (including dinosaurs). 2 Million years ago, The first humans (primitive) appeared on Earth.
 
-
-
 ![bdgfhdfgjn](https://user-images.githubusercontent.com/99862478/159645911-cd687bc6-6ed1-4e05-b660-5029abb339d6.PNG)
 ![hgfvydth](https://user-images.githubusercontent.com/99862478/159645922-201c7b46-3e6a-44c2-a224-7fff82cfa41e.PNG)
 ![jhgbfjy](https://user-images.githubusercontent.com/99862478/159645936-3de62406-0363-40b3-840f-362a1fa36b20.PNG)
@@ -77,6 +75,52 @@ Next up planet EARTH, 4.55 billion years ago, Small objects in the solar system 
 ![sf gvdvssdgv](https://user-images.githubusercontent.com/99862478/159645973-24a735fb-eea0-4f37-bef7-ab1ae6a01d55.PNG)
 ![gdnjgnhfg](https://user-images.githubusercontent.com/99862478/159645991-e3a700fb-f336-46ad-bd57-74a42514c79b.PNG)
 
+
+
+Today, Earth is the only known planet to support life. Humans have brought about a lot of changes on the planet. Some of which not good for the planet. 250 Million years from now, A new supercontinent 'Pangea Ultima' will form. 1 Billion years from now, Occeans will start evaporating due to increase in sun's luminosity. 7.59 Billion years from now  The red giant sun will finally swallow Earth.
+
+![xcghnfghf](https://user-images.githubusercontent.com/99862478/159648197-7a806c7d-9287-4f3d-ba98-c6432a90b9a1.PNG)
+![dfghndggf](https://user-images.githubusercontent.com/99862478/159648224-9161af37-e8b1-40e6-a6f1-37543fa4c316.PNG)
+![dgundgfn](https://user-images.githubusercontent.com/99862478/159648231-47d4d0e8-ad93-4a54-82cd-70bc06297890.PNG)
+![dghndfghnrtd](https://user-images.githubusercontent.com/99862478/159648241-a9782e5f-7285-4670-908f-ead593ac0647.PNG)
+![fmgh](https://user-images.githubusercontent.com/99862478/159648271-100bdd13-c47b-4323-888b-198c3c9ffcc0.PNG)
+
+___________________________________________________________________________________________________________________________________________________________________________
+
+Next up planet Mars. 4.6 billion years ago, small objects in solar system clumped together to form mars. 4.5 billion years ago, magma oceans flowed on Mars. 4.4 Billion years ago, Magnetic field activated on Mars. 4.3 Billion years ago, Debris rings forms around Mars after collision with a huge object. 4.2 Billion years ago, Carbon dioxide ice clouds form. (Mars gets warmer). 4.1 Billion years ago, Water Ocean/lakes form. Rainfall begins. 
+
+![dnghdfghdtrnhr](https://user-images.githubusercontent.com/99862478/159650718-3f09ceff-5ddc-4160-96be-b27d2b3da052.PNG)
+![hhf](https://user-images.githubusercontent.com/99862478/159650733-bbaf927c-d3db-4bc1-9870-02874343e1fe.PNG)
+![dndn](https://user-images.githubusercontent.com/99862478/159650750-13837845-0c55-4bfe-b522-076d8f9a9fc0.PNG)
+![f g bfg](https://user-images.githubusercontent.com/99862478/159650773-034a40c9-8338-4e9b-b918-70eb2b0ff9c0.PNG)
+![thcf](https://user-images.githubusercontent.com/99862478/159650788-e4e32491-a0a2-4837-b34c-7755b3edb0f8.PNG)
+![fnutrnrtfn](https://user-images.githubusercontent.com/99862478/159650797-92fbc7b6-88ca-411a-ba29-37d0541d82bf.PNG)
+
+
+
+3.8 Billion years ago, Life began on Mars (Meanwhile life began on Earth at the same time). 3.8 Billion years ago, Mars' molten core cooled down it began to lose atmosphere.
+Mars began to lose its water and atmosphere remaining water condensed to form Ice. 
+
+![df](https://user-images.githubusercontent.com/99862478/159652332-dfcfabcf-0078-4c56-8b21-97c8e3a2ce05.PNG)
+![sdfdfdfd](https://user-images.githubusercontent.com/99862478/159652345-d7e65fbc-49d5-46dc-adca-b604129c8757.PNG)
+![ffffdsdb](https://user-images.githubusercontent.com/99862478/159652357-984cd95e-f903-4ff4-96a1-aa755f06fb42.PNG)
+![gddfhfghj](https://user-images.githubusercontent.com/99862478/159652366-7a715ad7-31fa-4621-aea1-1b8dd659dda7.PNG)
+
+
+
+3.1 Billion years ago, Mars became a dead and cold planet,(Life was dead).
+Today, Mars has a thin atmosphere. Human robots and rovers have occupied Mars.
+100,000 years later, Mars terraformed by Humans. 50,000,000 years later, Mars moon Phobos falls into mars and is crushed by mars gravity to form rings around red planet.
+
+![hj](https://user-images.githubusercontent.com/99862478/159654167-ba866708-07ed-4222-a979-e262c5196014.PNG)
+![hfjffhj](https://user-images.githubusercontent.com/99862478/159654184-c04a5713-2c9a-4eff-9669-fd1e549b181b.PNG)
+![f g bfg](https://user-images.githubusercontent.com/99862478/159654199-a1ad3307-ba66-4da6-a334-cc2dd1b11543.PNG)
+
+
+
+4-5 Billion years later, Mars is stripped off of everything when Sun becomes a Red Giant.
+
+![hgf](https://user-images.githubusercontent.com/99862478/159654770-efa6aa69-feba-4b79-abcd-835f3feda250.PNG)
 
 
 
